@@ -36,8 +36,13 @@ Smaller cities show lower order value but present growth opportunities.
 
 🔑 Key Insights 
 📍 High-demand areas like Chembur and Banjara Hills drive maximum customer engagement.
+
 ⭐ Customer satisfaction is highest in Kolkata and Mumbai, making them strong markets.
+
 🍛 Indian & Chinese cuisines dominate revenue, making them key focus categories.
+
 🚴 Optimized delivery times improve performance in frequently ordered locations.
+
 🏙️ Metro cities contribute the most to revenue, but tier-2 cities have expansion potential.
+
 🏆 A few restaurants consistently outperform others, emphasizing quality consistency.
