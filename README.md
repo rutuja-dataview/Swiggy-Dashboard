@@ -35,6 +35,7 @@ Metro cities like Mumbai, Bangalore, Chennai, and Hyderabad generate higher reve
 Smaller cities show lower order value but present growth opportunities.
 
 🔑 Key Insights 
+
 📍 High-demand areas like Chembur and Banjara Hills drive maximum customer engagement.
 
 ⭐ Customer satisfaction is highest in Kolkata and Mumbai, making them strong markets.
